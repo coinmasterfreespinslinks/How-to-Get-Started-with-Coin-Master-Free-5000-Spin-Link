@@ -2,6 +2,8 @@
 
 Are you ready to level up your *Coin Master* game and enjoy massive rewards? You're in the right place! In this article, we'll guide you through how to get started with the *Coin Master Free 5000 Spin Link* and maximize your gameplay. Whether you're a newbie or a seasoned player, this exclusive offer will boost your chances of collecting coins, spins, and pets faster than ever before.
 
+### [✅CLICK HERE TO GET NOW FREE!](https://edris2025.github.io/spins/)
+
 ## What is Coin Master?
 
 Before diving into the free spins, let’s take a quick look at what *Coin Master* is. It’s an exciting mobile game that combines elements of slot machines, adventure, and strategy. In *Coin Master*, players build their villages, attack other players’ villages, raid for coins, and collect cards to complete sets. The goal is to progress through the game, build stronger villages, and become the ultimate Coin Master.
